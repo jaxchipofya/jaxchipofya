@@ -9,7 +9,7 @@
 ##### Inorder for my skill and message to reach the world I hope collaborate with any one working in Blockchain,Web development,Networking and Software development projects.
 ##### I am learning all i can from different online resources and i am willing to share my knowledge with any curious minds out there
 ##### You can reach me on twitter,email and facebook
-- @jackchipofya0x (twitter)
+- [@jackchipofya0x (twitter)](https://twitter.com/jackchipofya0x)
 - jackchipofya0x@gmail.com
 - Lord Caesar (Facebook)
 
